@@ -1,1 +1,1 @@
-ang naay uyab ron magbuwag igka feb 14
+I love nursing
